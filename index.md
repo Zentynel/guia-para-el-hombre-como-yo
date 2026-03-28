@@ -22,14 +22,14 @@ He vivido creo, muchas cosas.
 
 Directa o indirectamente se nos dijo:
 
-Un hombre no muestra sus sentimientos, ¡No se llora!.
-Un hombre tiene que ser fuerte, y duro.
-Un hombre debe mantener a su familia.
-Un hombre debe estudiar una carrera para optar a un buen trabajo.
-Un hombre debe ceder el asiento a las personas mayores y mujeres.
-Un hombre no debe dejarse pisar por otro.
-No hagas lo que no quieres que te hagan.
-Un hombre debe tener un coche diésel, no, un coche de gasolina, no, un coche eléctrico...esto último y las tres cosas a la vez.
+- Un hombre no muestra sus sentimientos, ¡No se llora!.
+- Un hombre tiene que ser fuerte, y duro.
+- Un hombre debe mantener a su familia.
+- Un hombre debe estudiar una carrera para optar a un buen trabajo.
+- Un hombre debe ceder el asiento a las personas mayores y mujeres.
+- Un hombre no debe dejarse pisar por otro.
+- No hagas lo que no quieres que te hagan.
+- Un hombre debe tener un coche diésel, no, un coche de gasolina, no, un coche eléctrico...esto último y las tres cosas a la vez.
 
 Y así se hizo en la medida en que se ha podido; sí he llorado, pero lo he evitado el 99% de las veces que podría haberlo hecho y nunca en público (vuelvo a sentir tristeza). He sido duro, he sido fuerte y me he mantenido inalterado ante situaciones adversas, he sido la muleta cuando se me ha presentado la oportunidad, pero se me ha tildado de insensible por ser lo que debo ser. He mantenido a mi familia pero no he conseguido mantener una familia, literalmente he invertido todo lo que “ha entrado” para que así sea, he puesto la casa, alquilando y luego una casa en propiedad. He conseguido finalizar la carrera a pesar de no encontrarme lo que esperaba de la misma y tengo un buen trabajo por méritos propios, esfuerzo, dedicación y más compromiso que el que se ofrecían a mi alrededor. Me he comportado de manera respetuosa, he cedido el asiento cuando correspondía y me he comportado de una manera leal a mi escala de valores, tratando a los demás como espero que me traten.
 
