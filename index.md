@@ -10,7 +10,7 @@ Curiosamente al escribir estas lineas me invade la tristeza como si escribiese m
 
 Socialmente soy lo que se conoce como un milenial, he crecido en un mundo analógico y vivo en mundo totalmente digital que empieza a ser golpeado por la IA (inteligencia artificial), lo que significa que estoy viviendo otro de los hitos más importantes de la humanidad y soy espectador de cómo cada generación nueva entra al mundo totalmente condicionada por el momento, el lugar y la sociedad en la que vive.
 
-Estudié ingeniería informática, por vocación (así lo veo yo). Recuerdo mis primeras experiencias con los ordenadores, en casa de unos amigos de mis padres donde su hijo me enseñó una aplicación para chatear con desconocidos mIRC, esto me fascinó y cuando llegué a mi casa con el ordenador patata que tenía mi familia (un 286) conecté el módem, no sin antes conectar unos cascos ya que cuando se conectaba hacía unos ruidos muy característicos y estridentes que podían despertar a mi familia y vecinos, entré en una sala de #hackers y me puse a chatear, unos diez minutos después alguien se hizo con el control de mi ordenador y me lo apagó, ¡¡¡esto me voló la cabeza!!!! ya estaba enganchadísimo, ese iba a ser mi futuro… ya lo sabía y así fue, aunque no fue fácil, no he sido un buen estudiante, era listo pero eso dejó de ser suficiente a partir del bachillerato y mucho menos en la carrera. Así que tardé 8 años en completar la carrera (de 4 en la UAM) pasando por dos universidades. Esto dinamitaba a mis padres día a día y yo... vivía el momento, buscaba trabajos para seguir pagando una carrera que mis padres me animaban a dejar por mi falta de compromiso, becario, hacía publicidad para una página web en flash, montaba fiestas de Nochevieja, lo que fuese…. salía de fiesta, y mis amigos lo eran todo. Hice un año de Erasmus en Italia (tan pobre y tan feliz!), que académicamente fue tan poco fructífero como los que hacía en España.
+Estudié ingeniería informática, por vocación (así lo veo yo). Recuerdo mis primeras experiencias con los ordenadores, en casa de unos amigos de mis padres donde su hijo me enseñó una aplicación para chatear con desconocidos mIRC, esto me fascinó y cuando llegué a mi casa con el ordenador patata que tenía mi familia (un 286) conecté el módem, no sin antes conectar unos cascos ya que cuando se conectaba hacía unos ruidos muy característicos y estridentes que podían despertar a mi familia y vecinos, entré en una sala de #hackers y me puse a chatear, unos diez minutos después alguien se hizo con el control de mi ordenador y me lo apagó, ¡¡¡esto me voló la cabeza!!!! ya estaba enganchadísimo, ese iba a ser mi futuro… ya lo sabía y así fue, aunque no fue fácil, no he sido un buen estudiante, era listo pero eso dejó de ser suficiente a partir del bachillerato y mucho menos en la carrera. Así que tardé 8 años en completar la carrera (de 4 en la UAM) pasando por dos universidades. Esto dinamitaba a mis padres día a día y yo... vivía el momento, buscaba trabajos para seguir pagando una carrera que mi padre me animaban a dejar por mi falta de compromiso, becario, hacía publicidad para una página web en flash, montaba fiestas de Nochevieja, lo que fuese…. salía de fiesta, y mis amigos lo eran todo. Hice un año de Erasmus en Italia (tan pobre y tan feliz!), que académicamente fue tan poco fructífero como los que hacía en España.
 
 Reciclo como si fuese a salvar el mundo, tengo 5 cubos diferentes y observo perplejo como, mientras yo incluyo la rutina de reciclado al otro lado del mundo se contamina como forma de vida. ¡Me vuelvo a sentir engañado!.
 
@@ -22,14 +22,21 @@ He vivido creo, muchas cosas.
 
 Directa o indirectamente se nos dijo:
 
-- Un hombre no muestra sus sentimientos, ¡No se llora!.
-- Un hombre tiene que ser fuerte, y duro.
-- Un hombre debe mantener a su familia.
-- Un hombre debe estudiar una carrera para optar a un buen trabajo.
-- Un hombre debe ceder el asiento a las personas mayores y mujeres.
-- Un hombre no debe dejarse pisar por otro.
-- No hagas lo que no quieres que te hagan.
-- Un hombre debe tener un coche diésel, no, un coche de gasolina, no, un coche eléctrico...esto último y las tres cosas a la vez.
+> Un hombre no muestra sus sentimientos, ¡No se llora!.
+> 
+> Un hombre tiene que ser fuerte, y duro.
+> 
+> Un hombre debe mantener a su familia.
+> 
+> Un hombre debe estudiar una carrera para optar a un buen trabajo.
+> 
+> Un hombre debe ceder el asiento a las personas mayores y mujeres.
+> 
+> Un hombre no debe dejarse pisar por otro.
+> 
+> No hagas lo que no quieres que te hagan.
+> 
+> Un hombre debe tener un coche diésel, no, un coche de gasolina, no, un coche eléctrico...esto último y las tres cosas a la vez.
 
 Y así se hizo en la medida en que se ha podido; sí he llorado, pero lo he evitado el 99% de las veces que podría haberlo hecho y nunca en público (vuelvo a sentir tristeza). He sido duro, he sido fuerte y me he mantenido inalterado ante situaciones adversas, he sido la muleta cuando se me ha presentado la oportunidad, pero se me ha tildado de insensible por ser lo que debo ser. He mantenido a mi familia pero no he conseguido mantener una familia, literalmente he invertido todo lo que “ha entrado” para que así sea, he puesto la casa, alquilando y luego una casa en propiedad. He conseguido finalizar la carrera a pesar de no encontrarme lo que esperaba de la misma y tengo un buen trabajo por méritos propios, esfuerzo, dedicación y más compromiso que el que se ofrecían a mi alrededor. Me he comportado de manera respetuosa, he cedido el asiento cuando correspondía y me he comportado de una manera leal a mi escala de valores, tratando a los demás como espero que me traten.
 
