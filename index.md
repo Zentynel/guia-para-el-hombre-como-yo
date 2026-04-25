@@ -114,7 +114,7 @@ No voy a decirte lo que tienes que hacer, pero si te voy a decir que eres tu qui
 
 No tomes un camino por complacer a los demás, no tomes el camino porque te hayan dicho que es el camino de la salvación, si estás aquí es porque ya seguiste un camino muy marcado, ahora toma las riendas.
 
-“Un calvo saca otro clavo”, ¡Por supuesto! Es una frase hecha genial; “Ahora lo que tienes que hacer es…” ¡Claro!
+“Un clavo saca otro clavo”, ¡Por supuesto! Es una frase hecha genial; “Ahora lo que tienes que hacer es…” ¡Claro!
 
 Son consejos, tómalos como tal, descártalos con el mismo criterio, pero se fiel a tu “esencia” la que no ha cambiado, la que te dice que tú eres tú, de lo contrario te estarías traicionando a ti mismo.
 
